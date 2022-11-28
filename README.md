@@ -7,3 +7,14 @@ https://www.youtube.com/watch?v=gvXqm4uMW7c for a preview.
 
 JOIN OUR DISCORD SERVER FOR UPDATES!
 https://discord.gg/aHjj8GSsFs
+
+
+Thanks to the beta testers for willing to install and run my software convinced it was a virus:
+
+jtkocak#5827
+
+Content#5059
+
+TheArsonistGamer#2263
+
+wel1621#6239
